@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=schizosilver)
+
 not much to put here. just im a minor (16) so dont be weird thanks!!
 
 listen to radiohead its peak
