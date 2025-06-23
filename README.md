@@ -6,4 +6,4 @@ listen to radiohead its peak and please sign my atabook
 
 ![](https://img.pokemondb.net/sprites/heartgold-soulsilver/normal/mightyena.png)
 
-[rentry where i yap about me](https://rentry.co/theblastoiseblues) (its in my links as well)
+[rentry where i yap about me](https://rentry.co/weepinghound) (its in my links as well)
