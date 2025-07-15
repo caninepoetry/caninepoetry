@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=caninepoetry)
+![](https://komarev.com/ghpvc/?username=caninepoetry&color=4ab9bd&label=⚔️)
 
 not much to put here. just im a minor (16) so dont be weird thanks!!
 
