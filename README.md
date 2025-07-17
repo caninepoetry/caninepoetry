@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=caninepoetry&color=4ab9bd&label=⚔️)
+![](https://komarev.com/ghpvc/?username=caninepoetry&color=4ab9bd&label=⚔️) ![](https://i.postimg.cc/HsYgMGxZ/inosukebeingsilly.gif) ![](https://komarev.com/ghpvc/?username=caninepoetry&color=4ab9bd&label=⚔️)
 
 ## **Beast Breathing! Second Fang - Slice!**
 
