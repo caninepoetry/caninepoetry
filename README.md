@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=caninepoetry&color=4ab9bd&label=⚔️)
+![](https://komarev.com/ghpvc/?username=caninepoetry&color=c73c24&label=⚔️)
 
-redoing soon
+redoing at some point
