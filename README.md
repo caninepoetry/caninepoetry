@@ -6,7 +6,7 @@
 
  ‿︵‿
 
- <img src="https://i.postimg.cc/FRmvSW-Mz/paaaainn.png" width="480" height="350" alt="This World Shall Know Pain">
+ <img src="https://i.postimg.cc/k4bL4xYC/pmopmopmopmo.png" width="490" height="370" alt="This World Shall Know Pain">
 
 真の痛みを理解しない者は、真の平和を理解することは決してできない。
 
