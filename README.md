@@ -1,3 +1,5 @@
+im putting this here cuz idk where to put it but a friend recently came to me with screenshot proof of me being colorpicked so here is the [rentry](https://rentry.co/pissingmeoff) please look. and to the person who colorpicked me please get original holy crap
+
 <div align="center">
 
 
